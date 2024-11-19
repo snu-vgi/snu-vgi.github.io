@@ -1,1 +1,0 @@
-# snu-vgi.github.io
